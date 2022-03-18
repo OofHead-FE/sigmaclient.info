@@ -4,6 +4,6 @@ __By using Sigma Client, you agree that it is not our problem if you get banned,
 
 ## What do we offer?
 
-**Trust: im not a very trustworthy person**
-\n**Bypasses: We have a very well working speed, long jump, high jump, etc.**
-\n**Price: $0.00**
+**Trust: im not a very trustworthy person**\n
+**Bypasses: We have a very well working speed, long jump, high jump, etc.**\n
+**Price: $0.00**
